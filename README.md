@@ -42,24 +42,3 @@ Question 27 and 28
 
 DAY 15
 Question 29 and 30
-
-DAY 16
-Question  and 
-
-DAY 17
-Question  and 
-
-DAY 18
-Question  and 
-
-DAY 19
-Question  and 
-
-DAY 20
-Question  and 
-
-DAY 21
-Question 1 and 2
-
-DAY 22
-Question 1 and 2
